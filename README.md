@@ -1,2 +1,0 @@
-# Maxin
-Yoo
